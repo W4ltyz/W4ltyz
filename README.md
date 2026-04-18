@@ -1,16 +1,18 @@
-## Hi there 👋
+<img width="500" height="281" alt="1cf01622cc05eb956b3ded998d70eff2" src="https://github.com/user-attachments/assets/4bd6a92d-84dd-48a2-a3d4-608bfb987b01" />
 
-<!--
-**W4ltyz/W4ltyz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+𝚃𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 𝚏𝚘𝚛 𝚟𝚒𝚜𝚒𝚝𝚒𝚗𝚐 𝚖𝚢 𝚙𝚊𝚐𝚎. 
 
-Here are some ideas to get you started:
+𝄞⨾𓍢ִ໋♬⋆.˚𝄢ᡣ𐭩ଘ━☆ﾟ.*･｡ﾟ★
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+𝙸𝚏 𝚢𝚘𝚞'𝚍 𝚕𝚒𝚔𝚎 𝚝𝚘 𝚔𝚗𝚘𝚠 𝚖𝚘𝚛𝚎 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎,
+𝚙𝚕𝚎𝚊𝚜𝚎 𝚛𝚎𝚊𝚍 𝚖𝚢 𝚙𝚊𝚐𝚎.
+
+𝙸𝚏 𝚢𝚘𝚞 𝚑𝚊𝚟𝚎 𝙵𝚊𝚌𝚎𝚋𝚘𝚘𝚔, 𝚙𝚕𝚎𝚊𝚜𝚎 𝚊𝚍𝚍 𝚖𝚎 𝚊𝚜 𝚊 𝚏𝚛𝚒𝚎𝚗𝚍.
+
+⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆౨ৎ˚⟡˖ ࣪
+
+ＴＨＡＮＫ ＦＯＲ ＲＥＡＤＩＮＧ
+
+<img width="736" height="414" alt="61495e8ff83e40aed3c94df1482adb20" src="https://github.com/user-attachments/assets/112c278e-8db1-4736-b305-3d28c69134ff" />
+Sign🪽
+<img width="642" height="341" alt="IMG_20260418_212942-removebg-preview" src="https://github.com/user-attachments/assets/469930e6-9e1e-41d9-8e8c-956dac1b672e" />
