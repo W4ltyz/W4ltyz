@@ -2,6 +2,11 @@
 
 𝚃𝚑𝚊𝚗𝚔 𝚞 4 𝚟𝚒𝚜𝚒𝚝𝚒𝚗𝚐 𝚖𝚢 𝚙𝚊𝚐𝚎. 
 
+Discord!!: @kennichann_51101
+
+<img width="286" height="286" alt="1000026869" src="https://github.com/user-attachments/assets/f64b118e-c6f8-470d-9899-dd76ac4cc74a" />
+
+
 𝄞⨾𓍢ִ໋♬⋆.˚𝄢ᡣ𐭩ଘ━☆ﾟ.*･｡ﾟ★
 
 <img width="735" height="488" alt="1000025227" src="https://github.com/user-attachments/assets/9ed1c36f-a69d-4aa5-9c84-b1a917cbafc8" />
