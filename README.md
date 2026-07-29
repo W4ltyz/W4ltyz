@@ -4,7 +4,7 @@
 
 Discord!!: @kennichann_51101
 
-<img width="286" height="286" alt="1000026869" src="https://github.com/user-attachments/assets/f64b118e-c6f8-470d-9899-dd76ac4cc74a" />
+<img width="230" height="230" alt="1000026869" src="https://github.com/user-attachments/assets/f64b118e-c6f8-470d-9899-dd76ac4cc74a" />
 
 
 𝄞⨾𓍢ִ໋♬⋆.˚𝄢ᡣ𐭩ଘ━☆ﾟ.*･｡ﾟ★
