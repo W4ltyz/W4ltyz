@@ -4,7 +4,7 @@
 
 Discord!!: @kennichann_51101
 
-<img width="216" height="216" alt="1000026869" src="https://github.com/user-attachments/assets/f64b118e-c6f8-470d-9899-dd76ac4cc74a" />
+<img width="200" height="200" alt="1000026869" src="https://github.com/user-attachments/assets/f64b118e-c6f8-470d-9899-dd76ac4cc74a" />
 
 
 𝄞⨾𓍢ִ໋♬⋆.˚𝄢ᡣ𐭩ଘ━☆ﾟ.*･｡ﾟ★
@@ -18,7 +18,7 @@ I can only speak a few words of Eng so our conversation might be a little diffic
 
 Im an eccentric, but Im very friendly!🍒
 
-Although its not really related, I absolutely luv SpokeIsHere and wemmbu, and PrinceZamxWemmbu sm!!!!!🍒🧁🍓🍰💗🍬Plz, dont toxic me!!
+Although its not really related, I absolutely luv SpokeIsHere and wemmbu, and PrinceZamxWemmbu smm (I only luv their duo, dont ship 😭)!!!!!🍒🧁🍓🍰💗🍬Plz, dont toxic me!!
 
 ⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆౨ৎ˚⟡˖ ࣪
 
