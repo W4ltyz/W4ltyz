@@ -4,7 +4,8 @@
 
 Discord!!: @kennichann_51101
 
-<img width="180" height="180" alt="1000026869" src="https://github.com/user-attachments/assets/f64b118e-c6f8-470d-9899-dd76ac4cc74a" />
+<img width="1080" height="1131" alt="b7c1fdfb-4e66-4622-ab03-8a7f35f67412-1_all_5957" src="https://github.com/user-attachments/assets/0a772aea-38ce-421a-8d8e-aa866dab625f" />
+
 
 
 𝄞⨾𓍢ִ໋♬⋆.˚𝄢ᡣ𐭩ଘ━☆ﾟ.*･｡ﾟ★
@@ -22,7 +23,7 @@ Although its not really related, I absolutely luv SpokeIsHere and wemmbu, and Pr
 
 ⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆౨ৎ˚⟡˖ ࣪
 
-<img width="736" height="414" alt="1000025226" src="https://github.com/user-attachments/assets/df179caa-a3c2-45af-bbda-0770f2c6be7f" />
+<img width="180" height="180" alt="1000025226" src="https://github.com/user-attachments/assets/df179caa-a3c2-45af-bbda-0770f2c6be7f" />
 
 
 ＴＨＡＮＫ ＦＯＲ ＲＥＡＤＩＮＧ
