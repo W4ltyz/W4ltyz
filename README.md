@@ -29,6 +29,6 @@ Although its not really related, I absolutely luv SpokeIsHere and wemmbu, and Pr
 
 ＴＨＡＮＫ ＦＯＲ ＲＥＡＤＩＮＧ
 
-<img width="736" height="414" alt="61495e8ff83e40aed3c94df1482adb20" src="https://github.com/user-attachments/assets/112c278e-8db1-4736-b305-3d28c69134ff" />
+<img width="738" height="415" alt="61495e8ff83e40aed3c94df1482adb20" src="https://github.com/user-attachments/assets/112c278e-8db1-4736-b305-3d28c69134ff" />
 Sign🪽
 <img width="642" height="341" alt="IMG_20260418_212942-removebg-preview" src="https://github.com/user-attachments/assets/469930e6-9e1e-41d9-8e8c-956dac1b672e" />
