@@ -20,11 +20,11 @@ I can only speak a few words of Eng so our conversation might be a little diffic
 
 Im an eccentric, but Im very friendly!🍒
 
-Although its not really related, I absolutely luv SpokeIsHere and wemmbu, and PrinceZamxWemmbu smm (I only luv their duo, dont ship 😭)!!!!!🍒🧁🍓🍰💗🍬Plz, dont toxic me!!
+Although its not really related, I absolutely luv SpokeIsHere and wemmbu, and mutiny duo smm (I only luv their duo, dont ship 😭)!!!!!🍒🧁🍓🍰💗🍬Plz, dont toxic me!!
 
 ⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆౨ৎ˚⟡˖ ࣪
 
-<img width="180" height="180" alt="1000025226" src="https://github.com/user-attachments/assets/df179caa-a3c2-45af-bbda-0770f2c6be7f" />
+<img width="735" height="488" alt="1000025226" src="https://github.com/user-attachments/assets/df179caa-a3c2-45af-bbda-0770f2c6be7f" />
 
 
 ＴＨＡＮＫ ＦＯＲ ＲＥＡＤＩＮＧ
