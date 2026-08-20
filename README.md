@@ -11,7 +11,8 @@ My strawpage is being reworked😺💟
 
 𝄞⨾𓍢ִ໋♬⋆.˚𝄢ᡣ𐭩ଘ━☆ﾟ.*･｡ﾟ★
 
-<img width="735" height="488" alt="1000025227" src="https://github.com/user-attachments/assets/9ed1c36f-a69d-4aa5-9c84-b1a917cbafc8" />
+<img width="735" height="551" alt="1000027988" src="https://github.com/user-attachments/assets/1c581caf-0e39-47ca-9df8-9e2094a89aa0" />
+
 
 
 I luv my friends sm, Although my eng is terrible, I will do my best!!XD
@@ -24,11 +25,13 @@ Although its not really related, I absolutely luv SpokeIsHere and wemmbu, and mu
 
 ⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆౨ৎ˚⟡˖ ࣪
 
-<img width="735" height="488" alt="1000025226" src="https://github.com/user-attachments/assets/df179caa-a3c2-45af-bbda-0770f2c6be7f" />
+<img width="735" height="481" alt="1000027987" src="https://github.com/user-attachments/assets/fe19560a-87e6-46b2-b0a8-09f73530e87a" />
+
 
 
 ＴＨＡＮＫ ＦＯＲ ＲＥＡＤＩＮＧ
 
-<img width="738" height="415" alt="61495e8ff83e40aed3c94df1482adb20" src="https://github.com/user-attachments/assets/112c278e-8db1-4736-b305-3d28c69134ff" />
+<img width="540" height="304" alt="1000027989" src="https://github.com/user-attachments/assets/722bfea3-897f-4df0-b943-d0e4cf7a4907" />
+
 Sign🪽
 <img width="642" height="341" alt="IMG_20260418_212942-removebg-preview" src="https://github.com/user-attachments/assets/469930e6-9e1e-41d9-8e8c-956dac1b672e" />
