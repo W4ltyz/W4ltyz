@@ -7,6 +7,7 @@ Discord!!: @kennichann_51101
 <img width="180" height="180" alt="b7c1fdfb-4e66-4622-ab03-8a7f35f67412-1_all_5957" src="https://github.com/user-attachments/assets/0a772aea-38ce-421a-8d8e-aa866dab625f" />
 
 
+My strawpage is being reworked😺💟
 
 𝄞⨾𓍢ִ໋♬⋆.˚𝄢ᡣ𐭩ଘ━☆ﾟ.*･｡ﾟ★
 
