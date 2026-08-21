@@ -28,9 +28,10 @@ Although its not really related, I absolutely luv Spoke, wem, minutete,ashs,wifi
 
 <img width="735" height="481" alt="1000027987" src="https://github.com/user-attachments/assets/fe19560a-87e6-46b2-b0a8-09f73530e87a" />
 
-⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ
+⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆ ˚ ꩜ ｡ ⋆୨୧˚
 
-<img width="170" height="170" alt="1000028113" src="https://github.com/user-attachments/assets/304f9bbc-7157-47a4-9f23-411f0237c575" />
+<img width="170" height="170" alt="1000028114" src="https://github.com/user-attachments/assets/f9aa3b08-fd94-41c8-a8d9-f000fae9d36f" />
+
 
 
 ＴＨＡＮＫ ＦＯＲ ＲＥＡＤＩＮＧ
