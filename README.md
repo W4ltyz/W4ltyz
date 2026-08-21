@@ -14,6 +14,7 @@ My strawpage is being reworked😺💟
 <img width="735" height="551" alt="1000027988" src="https://github.com/user-attachments/assets/1c581caf-0e39-47ca-9df8-9e2094a89aa0" />
 
 
+call me w4 or Bon, btw★🧑‍🍳🧑‍🍳
 
 I luv my friends sm, Although my eng is terrible, I will do my best!!XD
 
@@ -21,12 +22,15 @@ I can only speak a few words of Eng so our conversation might be a little diffic
 
 Im an eccentric, but Im very friendly!🍒
 
-Although its not really related, I absolutely luv SpokeIsHere and wemmbu, and mutiny duo smm (I only luv their duo, dont ship 😭)!!!!!🍒🧁🍓🍰💗🍬Plz, dont toxic me!!
+Although its not really related, I absolutely luv Spoke, wem, minutete,ashs,wifies, and mutiny duo smm (I only luv their duo, I dont ship them😭)!!!!!🍒🧁🍓🍰💗🍬Plz, dont toxic me!!
 
 ⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆౨ৎ˚⟡˖ ࣪
 
 <img width="735" height="481" alt="1000027987" src="https://github.com/user-attachments/assets/fe19560a-87e6-46b2-b0a8-09f73530e87a" />
 
+⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ
+
+<img width="170" height="170" alt="1000028113" src="https://github.com/user-attachments/assets/304f9bbc-7157-47a4-9f23-411f0237c575" />
 
 
 ＴＨＡＮＫ ＦＯＲ ＲＥＡＤＩＮＧ
