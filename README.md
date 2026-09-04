@@ -11,7 +11,8 @@ My strawpage is being reworked😺💟
 
 𝄞⨾𓍢ִ໋♬⋆.˚𝄢ᡣ𐭩ଘ━☆ﾟ.*･｡ﾟ★
 
-<img width="735" height="551" alt="1000027988" src="https://github.com/user-attachments/assets/1c581caf-0e39-47ca-9df8-9e2094a89aa0" />
+<img width="736" height="552" alt="1000029292" src="https://github.com/user-attachments/assets/39506677-2dac-460c-8d49-8768596f7943" />
+
 
 
 call me w4 or Bon, btw★🧑‍🍳🧑‍🍳
@@ -24,9 +25,7 @@ Im an eccentric, but Im very friendly!🍒
 
 Although its not really related, I absolutely luv wifies!!!!!🍒🧁🍓🍰💗🍬Plz, dont toxic me!!
 
-https://audio.com/bunnii2.01863561057963942/audio/it-s-me-illit
-
-https://music.apple.com/us/album/chaos-construct-single/1692377763?l=vi
+[![Spotify](https://vercel.app)](https://spotify.com)
 
 ⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆౨ৎ˚⟡˖ ࣪
 
