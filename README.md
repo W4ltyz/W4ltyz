@@ -23,7 +23,10 @@ Im an eccentric, but Im very friendly!🍒
 
 I absolutely luv my friends!!!!!🍒🧁🍓🍰💗
 
-[![Spotify](https://v9.gg)](https://spotify.com)
+<a href="https://spotify.com">
+  <img src="https://vercel.app" alt="Spotify" width="400px"} />
+</a>
+
 
 
 ⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆౨ৎ˚⟡˖ ࣪
