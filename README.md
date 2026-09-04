@@ -23,11 +23,12 @@ Im an eccentric, but Im very friendly!🍒
 
 I absolutely luv my friends!!!!!🍒🧁🍓🍰💗
 
-# 🎵 CHAOS CONSTRUCT - AZALI
-
-[![Spotify](https://shields.io)](https://spotify.com)
-
-
+<div align="center">
+  <a href="https://open.spotify.com/track/3nkZ0ltcuY5xqc7u0FDDrU">
+    <img src="https://giphy.com" width="160" alt="Click để nghe CHAOS CONSTRUCT"/>
+    <p>🎵 <b>Click để nghe: CHAOS CONSTRUCT - AZALI</b> 🎵</p>
+  </a>
+</div>
 
 
 ⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆౨ৎ˚⟡˖ ࣪
