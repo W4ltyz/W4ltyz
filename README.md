@@ -23,12 +23,11 @@ Im an eccentric, but Im very friendly!🍒
 
 I absolutely luv my friends!!!!!🍒🧁🍓🍰💗
 
-<div align="center">
-  <a href="https://spotify.com">
-    <img src="https://ubuntu.com" width="160" alt="Click để nghe CHAOS CONSTRUCT"/>
-    <p>🎵 <b>Click để nghe: CHAOS CONSTRUCT - AZALI</b> 🎵</p>
-  </a>
-</div>
+# 🎵 CHAOS CONSTRUCT - AZALI
+[<img src="https://githubassets.com" width="100" alt="Bấm để nghe nhạc"/>](https://spotify.com)
+
+*Bấm vào đĩa nhạc ở trên để nghe bài hát trên Spotify của mình nhé! ✨*
+
 
 
 
