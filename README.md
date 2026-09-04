@@ -25,10 +25,11 @@ I absolutely luv my friends!!!!!🍒🧁🍓🍰💗
 
 <div align="center">
   <a href="https://spotify.com">
-    <img src="https://vercel.app" width="160" alt="Click để nghe CHAOS CONSTRUCT"/>
+    <img src="https://ubuntu.com" width="160" alt="Click để nghe CHAOS CONSTRUCT"/>
     <p>🎵 <b>Click để nghe: CHAOS CONSTRUCT - AZALI</b> 🎵</p>
   </a>
 </div>
+
 
 
 
