@@ -23,9 +23,12 @@ Im an eccentric, but Im very friendly!🍒
 
 I absolutely luv my friends!!!!!🍒🧁🍓🍰💗
 
-<a href="https://spotify.com">
-  <img src="https://vercel.app" alt="Spotify" width="400px"} />
-</a>
+<div align="center">
+  <a href="https://open.spotify.com/track/3nkZ0ltcuY5xqc7u0FDDrU">
+    <img src="https://giphy.com" width="160" alt="Click để nghe CHAOS CONSTRUCT"/>
+    <p>🎵 <b>Click để nghe: CHAOS CONSTRUCT - AZALI</b> 🎵</p>
+  </a>
+</div>
 
 
 
