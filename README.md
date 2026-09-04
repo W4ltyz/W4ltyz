@@ -22,7 +22,11 @@ I can only speak a few words of Eng so our conversation might be a little diffic
 
 Im an eccentric, but Im very friendly!🍒
 
-Although its not really related, I absolutely luv Spoke, wem, minutete,ashs,wifies, and mutiny duo smm (I only luv their duo, I dont ship them😭)!!!!!🍒🧁🍓🍰💗🍬Plz, dont toxic me!!
+Although its not really related, I absolutely luv wifies!!!!!🍒🧁🍓🍰💗🍬Plz, dont toxic me!!
+
+https://audio.com/bunnii2.01863561057963942/audio/it-s-me-illit
+
+https://music.apple.com/us/album/chaos-construct-single/1692377763?l=vi
 
 ⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆౨ৎ˚⟡˖ ࣪
 
