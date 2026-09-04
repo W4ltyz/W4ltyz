@@ -23,14 +23,10 @@ Im an eccentric, but Im very friendly!🍒
 
 I absolutely luv my friends!!!!!🍒🧁🍓🍰💗
 
-### 💿 CHAOS CONSTRUCT - AZALI
-[▶️ Click here to listen to the song on Spotify](https://spotify.com)
+# 🎵 CHAOS CONSTRUCT - AZALI
+[![Music Disc](https://github.com)](https://spotify.com)
 
-
-
-
-
-
+*Click on the disc above to listen on Spotify! ✨*
 
 
 ⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆౨ৎ˚⟡˖ ࣪
