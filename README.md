@@ -4,8 +4,6 @@
 
 Discord!!: @kennichann_51101
 
-<img width="180" height="180" alt="b7c1fdfb-4e66-4622-ab03-8a7f35f67412-1_all_5957" src="https://github.com/user-attachments/assets/0a772aea-38ce-421a-8d8e-aa866dab625f" />
-
 
 My strawpage is being reworked😺💟
 
@@ -32,9 +30,6 @@ I absolutely luv my friends!!!!!🍒🧁🍓🍰💗
 <img width="735" height="481" alt="1000027987" src="https://github.com/user-attachments/assets/fe19560a-87e6-46b2-b0a8-09f73530e87a" />
 
 ⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆ ˚ ꩜ ｡ ⋆୨୧˚
-
-<img width="170" height="170" alt="1000028114" src="https://github.com/user-attachments/assets/f9aa3b08-fd94-41c8-a8d9-f000fae9d36f" />
-
 
 
 ＴＨＡＮＫ ＦＯＲ ＲＥＡＤＩＮＧ
