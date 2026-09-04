@@ -23,7 +23,7 @@ I can only speak a few words of Eng so our conversation might be a little diffic
 
 Im an eccentric, but Im very friendly!🍒
 
-Although its not really related, I absolutely luv my friends!!!!!🍒🧁🍓🍰💗🍬
+I absolutely luv my friends!!!!!🍒🧁🍓🍰💗
 
 [![Spotify](https://vercel.app)](https://spotify.com)
 
