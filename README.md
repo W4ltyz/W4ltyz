@@ -24,9 +24,9 @@ Im an eccentric, but Im very friendly!🍒
 I absolutely luv my friends!!!!!🍒🧁🍓🍰💗
 
 # 🎵 CHAOS CONSTRUCT - AZALI
-[![Spotify](https://vercel.app)](https://spotify.com)
 
-*Click on the card above to listen on Spotify! ✨*
+[![Spotify](https://shields.io)](https://spotify.com)
+
 
 
 
