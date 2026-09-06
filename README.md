@@ -4,6 +4,9 @@
 
 Discord!!: @kennichann_51101
 
+My strawpage looks better when viewed in portrait mode rather than landscape mode
+
+Im creating another page to explain DNI, likes, m hates
 
 𝄞⨾𓍢ִ໋♬⋆.˚𝄢ᡣ𐭩ଘ━☆ﾟ.*･｡ﾟ★
 
