@@ -5,8 +5,6 @@
 Discord!!: @kennichann_51101
 
 
-My strawpage is being reworked😺💟
-
 𝄞⨾𓍢ִ໋♬⋆.˚𝄢ᡣ𐭩ଘ━☆ﾟ.*･｡ﾟ★
 
 <img width="736" height="552" alt="1000029292" src="https://github.com/user-attachments/assets/39506677-2dac-460c-8d49-8768596f7943" />
