@@ -11,7 +11,7 @@ Discord!!: @kennichann_51101
 
 
 
-call me w4 or Bon, btw★🧑‍🍳🧑‍🍳
+call me Ceblt, w4 or Bon🧑‍🍳🧑‍🍳
 
 I luv my friends sm, Although my eng is terrible, I will do my best!!XD
 
