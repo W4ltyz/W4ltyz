@@ -4,7 +4,7 @@
 
 Discord!!: @kennichann_51101
 
-My strawpage looks fine when viewed in portrait mode rather than landscape mode
+My strawpage looks better when viewed in portrait mode rather than landscape mode
 
 Im creating another page to explain DNI, likes, m hates
 
