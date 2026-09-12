@@ -1,2 +1,1 @@
-Currently being edited
-wip
+Currently undergoing revisions
